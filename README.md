@@ -1,1 +1,1 @@
-No addiotional information provided
+No additional information provided
